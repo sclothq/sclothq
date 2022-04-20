@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sclothq
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning how to walk
